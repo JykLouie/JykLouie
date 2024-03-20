@@ -1,5 +1,5 @@
 ### Hi there 👋 ###
-My name is Jiayang, you can prononce it as J-Young. I'm currently pursuing a Bachelor's degree in Computer Science at Boston University with an expected graduation date of June 2025.
+My name is Jiayang, you can prononce it as J-Young. I'm currently pursuing a Bachelor's degree in Computer Science at Boston University with an expected graduation date of May 2025.
 
 About
 -
